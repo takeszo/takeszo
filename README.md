@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do Gabriel😁
+## Bem-vinde ao meu perfil 𓆩♡𓆪
 
  <div>
    <a href="https://github.com/takeszo">
